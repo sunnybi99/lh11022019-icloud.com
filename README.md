@@ -1,2 +1,2 @@
 # lh11022019-icloud.com
-Sức mạnh vĩ đại nhất của vũ trụ, chính là Tình yêu
+Sức mạnh vi dai nhat của vũ trụ, do chinh là Tình yêu.
